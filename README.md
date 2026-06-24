@@ -19,11 +19,7 @@ Features
 
 Links
 
-🔗 Official Website: [https://ryze18.itch.io/]
-
-Contact
-
-For questions, feedback, or collaboration inquiries, feel free to reach out.
+🔗 Website: [https://ryze18.itch.io/]
 
 
 Snowsurfer — Carve. Boost. Win.
